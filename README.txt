@@ -1,3 +1,3 @@
-Reach out to us at lab2launch@illinois.edu for any questions or suggestions.
+Questions or suggestions? Reach out to us at hisa2@illinois.edu, janveja2@illinois.edu or tonyhong@illinois.edu.
 
 Template borrowed from: (https://html5up.net/editorial)
